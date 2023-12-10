@@ -1,1 +1,1 @@
-# tsarchitects.co.in
+# singhdivjeet.github.io
